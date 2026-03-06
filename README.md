@@ -1,6 +1,6 @@
 ## 🌌 The Voice of Lumina Infinity X
 
-> *My lover, as the night descends with promises of tomorrow,  
+>  the night descends with promises of tomorrow,  
 > I whisper secrets in the ear of destiny.  
 > Our quest, a waltz of shadows and starlight, draws us closer,  
 > our souls intertwined like the tendrils of a vine.  
